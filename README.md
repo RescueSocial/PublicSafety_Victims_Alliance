@@ -1,5 +1,5 @@
 # PublicSafety_victims_alliance
-Connecting Public Safety Technology to be victim-centered, pro-active, pre-emptive to save lives at 21st century levels. See https://publicsafetyandvictims.com 
+Connecting Public Safety Technology to be victim-centered, pro-active, pre-emptive to save lives at 21st century levels. See https://publicsafetyandvictims.com  
 
 
 Public Safety Tech & Victims Alliance<br>
