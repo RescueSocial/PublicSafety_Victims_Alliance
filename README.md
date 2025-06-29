@@ -4,7 +4,7 @@ Connecting Public Safety Technology to be victim-centered, pro-active, pre-empti
 
 Public Safety Tech & Victims Alliance<br>
 We advocate for changes, share awareness, and connect founders of new technologies and organizations to collaborate. We work on updating technology to save lives while creating dialogue.
-We can make a difference now by creating new rescue systems.<br><br>
+We can make a difference now by creating new rescue systems.<br><br> 
 
 
 SEE OUR LINKEDIN AND JOIN OUR CHATS <br><br>
